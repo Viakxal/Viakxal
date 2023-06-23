@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @Viakxal
+- 👀 I’m interested in ...
+- 🌱 I’m currently learning IT
